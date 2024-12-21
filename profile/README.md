@@ -9,14 +9,14 @@ Are you ready to dive into an enchanting journey of music? Let’s begin the adv
 
 ### Play Game in Corruptbox
 
-- [Corruptbox 2 But Sprunki](https://corruptbox.com/corruptbox-2-but-sprunki)
 - [Sprunki Corruptbox 3 Infected War](https://corruptbox.com/corruptbox-3-x-sprunki)
+- [Corruptbox 2 But Sprunki](https://corruptbox.com/corruptbox-2-but-sprunki)
 - [Corruptbox But Sprunki](https://corruptbox.com/corruptbox-but-sprunki)
 
 ### Play Game in Sprunki Sinner
 
-- [Corruptbox 2 But Sprunki](https://sprunkisinner.org/corruptbox-2-but-sprunki)
 - [Sprunki Corruptbox 3 Infected War](https://sprunkisinner.org/sprunki-corruptbox-3-infected-war)
+- [Corruptbox 2 But Sprunki](https://sprunkisinner.org/corruptbox-2-but-sprunki)
 - [Corruptbox But Sprunki](https://sprunkisinner.org/corruptbox-but-sprunki)
 
 ## Introduction to Sprunki Corruptbox 3 Infected War
