@@ -7,13 +7,13 @@ Welcome to **Sprunki Corruptbox 3 Infected War** – a groundbreaking music crea
 ## Play Sprunki Corruptbox 3 Infected War Now
 Are you ready to dive into an enchanting journey of music? Let’s begin the adventure!
 
-### Play Game in Corruptbox
+### Play Game on Corruptbox
 
 - [Sprunki Corruptbox 3 Infected War](https://corruptbox.com/corruptbox-3-x-sprunki)
 - [Corruptbox 2 But Sprunki](https://corruptbox.com/corruptbox-2-but-sprunki)
 - [Corruptbox But Sprunki](https://corruptbox.com/corruptbox-but-sprunki)
 
-### Play Game in Sprunki Sinner
+### Play Game on Sprunki Sinner
 
 - [Sprunki Corruptbox 3 Infected War](https://sprunkisinner.org/sprunki-corruptbox-3-infected-war)
 - [Corruptbox 2 But Sprunki](https://sprunkisinner.org/corruptbox-2-but-sprunki)
